@@ -20,3 +20,4 @@ I am a results-driven technologist focused on bridging the gap between core soft
 Targeting **AI Consultant** and **Data Engineering** roles in Hyderabad where I can deploy agentic solutions to solve complex business logic.
 
  **How to reach me: rohitkoppula98@gmail.com
+2023 XYZ, Inc.
